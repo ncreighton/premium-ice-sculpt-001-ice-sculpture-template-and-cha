@@ -1,0 +1,2 @@
+# premium-ice-sculpt-001-ice-sculpture-template-and-cha
+Tired of losing track of your chainsaw settings and ice block dimensions mid-carve? Stop scribbling on frozen paper and start using a structured system that captures every detail of your ice sculpture process.  The Ice Sculpture Template and Chain Saw Log is the first Notion template designed specifically for chainsaw ice sculptors. It combines a p
